@@ -18,7 +18,7 @@ Spring 2019
 
 **Office:** 2627 Dunford Hall, 6th Floor
 
-**Office Hours:** Tuesday, 4:00-5:00, Wednesday, 3:00-4:00
+**Office Hours:** Tuesday, 3:00-5:00, or by appointment
 
 
 
