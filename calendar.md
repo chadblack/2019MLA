@@ -111,13 +111,10 @@ Lectures"](https://www.cc-seas.columbia.edu/node/31875), Columbia University.
 
 ### Tuesday, March 19, 2019
 
-**Readings:**
-
 ### Thursday, March 21, 2019
 
-**Readings:**
 
-## Week 12: Good Neighbors?
+## Week 12: The Motorcycle Diaries
 
 ### Tuesday, March 26, 2019
 
