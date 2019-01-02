@@ -39,9 +39,7 @@ redemocratization; U.S. policy and intervention; and the emergence of
 contemporary social movements in the context of neoliberal economies.
 
 While some familiarity with Latin America will be helpful, this is an
-introduction to the history of the region since the end of colonial rule. If
-you haven't already, I encouraged you to take History 255 – the Survey of Early
-Latin America.
+introduction to the history of the region since the end of colonial rule. 
 
 # Readings
 
@@ -67,22 +65,21 @@ semester, including both content-specific and skill-based goals.
 
 1. To introduce students to the forces, events, and conflicts that defined the
    process of nation building in the Americas, including:
-
    * The legacies of Spanish imperial rule on the new nation states of 19th-century Latin America. 
    * The historical processes of inclusion and exclusion in building new nations.
    * The role of indigenous people in building and contesting modern Latin American societies
    * The role of the United States in shaping the political economy of modern Latin America.
    * The expressions in Latin American popular culture of the tensions within society.
 
-2. To understand and use a variety of sources that provide the core of historical inquiry.
 
+2. To understand and use a variety of sources that provide the core of historical inquiry.
    * Primary written sources, and their particular challenges.
    * Secondary sources, and how to read them critically.
    * Visual and physical sources of evidence.
    * The absence of sources— finding lost voices, and reading against the grain.
 
-3. To be able to identify, understand, and critique historical argument.
 
+3. To be able to identify, understand, and critique historical argument.
    * Historians follow a lose set of epistemological, theoretical, and
    evidentiary rules in their attempts to recreate the limited past that is
    accessible to us through our incomplete archival record. At the college
