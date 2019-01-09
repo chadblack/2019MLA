@@ -5,9 +5,9 @@ title: assignments
 
 1. **Weekly Reports:**  (30%)
 
-Each week, students will write a 1-1.5 page paper that synthesizes the readings,
-and connects them to weekly themes in class. Weekly Reports are due at the end
-of class on Thursday. They should be typed. The report will respond to all three of the following prompts:
+Each week, students will write a 1 page paper that synthesizes the readings,
+and connects them to weekly themes in class. Weekly Reports are due by
+midnight on Thursday, uploaded onto Canvas. The report will respond to all three of the following prompts:
 
   1. Identify at least one concept, event, claim, or proper noun mentioned in the
      readings that is unfamiliar to you. Use [Reference Tools on the
@@ -22,11 +22,13 @@ of class on Thursday. They should be typed. The report will respond to all three
      assigned readings helps to answer. Then explain why you think
      this source sheds light on this specific question.
 
-  3. Identify any new questions raised by the readings that have not come up in
-     class. (Using information from the readings to revise or improve one of our
-     previous questions is acceptable here, too.)
+  3. Connect a each of the readings to the lectures from the week they
+     were assigned. How do the readings complement or contradict or expand on
+     topics discussed in class?
+
 
 The entire report will be no more than about one typed, single-spaced page.
+
 
 2. **Exam 1** (20%)
 
