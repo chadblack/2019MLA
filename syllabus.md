@@ -4,21 +4,21 @@ title: syllabus
 ---
 
 
-Introduction to Modern Latin America
+Introduction to Modern Latin America  
+HILA 255/LACS 252  
+Spring 2019  
 
-HILA 255/LACS 252
+**Prof. Chad Black**  
+**Email:** cblack6@utk.edu  
+**Phone:** 974-9871  
+**Office:** 2627 Dunford Hall, 6th Floor  
+**Office Hours:** Tuesday, 3:00-5:00, or by appointment  
 
-Spring 2019
 
-**Prof. Chad Black**
-
-**Email:** cblack6-at-utk.edu
-
-**Phone:** 974-9871
-
-**Office:** 2627 Dunford Hall, 6th Floor
-
-**Office Hours:** Tuesday, 3:00-5:00, or by appointment
+**TA:** Ms. Emma Thompson  
+**Email:** zmy727@vols.utk.edu  
+**Office:**  
+**Office Hours:** Mondays, 8:00-10:00  
 
 
 # About
