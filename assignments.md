@@ -22,7 +22,7 @@ midnight on Thursday, uploaded onto Canvas. The report will respond to all three
      assigned readings helps to answer. Then explain why you think
      this source sheds light on this specific question.
 
-  3. Connect a each of the readings to the lectures from the week they
+  3. Connect at least one of the readings to the lectures from the week they
      were assigned. How do the readings complement or contradict or expand on
      topics discussed in class?
 
