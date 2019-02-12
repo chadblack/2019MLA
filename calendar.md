@@ -95,7 +95,7 @@ in Nineteenth-Century Latin America.” *Latin American Research Review* 46.2 (2
 
 **Readings:**
 
-* Chasteen, Chapter 7.
+* Chasteen, Chapter 6.
 * Reinhardt, "The Consolidation of the Import-Export Economy in 19th-Cent. Colombia"
 
 ### Thursday, February 14, 2019: Visions of Progress
