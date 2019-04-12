@@ -42,7 +42,7 @@ this film in class the week after Spring Break.
 
 3. **Little School Reaction** (15%)
 
-For the second of two reaction papers, students will write a 3-5 page
+For the second of two reaction papers, students will write a 2-3 page
 analysis of *The Little Schoolhouse*. 
 
 4. **Exam 2** (20%)
