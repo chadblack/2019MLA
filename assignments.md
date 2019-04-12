@@ -40,10 +40,10 @@ For the first of two reaction papers, students will write an analysis of the
 film *Motorcycle Diaries*. The paper will be 3-5 pages long. We will watch
 this film in class the week after Spring Break.
 
-3. **Little School Reaction** (15%)
+3. **The Little School Reaction** (15%)
 
 For the second of two reaction papers, students will write a 2-3 page
-analysis of *The Little Schoolhouse*. 
+analysis of *The Little School*. 
 
 4. **Exam 2** (20%)
 

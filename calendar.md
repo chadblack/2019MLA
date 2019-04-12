@@ -254,7 +254,7 @@ University Press).
 * Argentine Junta Fundamental Concepts, 1983.
 * Thomas C. Wright, "Chile Under State Terrorism," in State Terrorism in Latin America. Chile, Argentina, and International Human Rights (Lanham: Rowman & Littlefield Publishers, 2007), pp. 47-94.
 
-**Due:** Little Schoolhouse Reaction Paper
+**Due:** The Little School Reaction Paper
 
 
 ## Week 16: New Nationalisms
